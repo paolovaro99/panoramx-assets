@@ -1,1 +1,0 @@
-# panoramx-assets
